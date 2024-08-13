@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-meu nome é mikaelly, tenho 18 anos, moro em São Bernardo do Campo e gosto de sair com os amigos. 
+meu nome é mikaelly, tenho 18 anos, moro em São Bernardo do Campo, gosto de sair com os amigos e viajar para praia.
 ![]()
